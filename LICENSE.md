@@ -1,4 +1,4 @@
-
+Get ahead in steal a brainrot with updated steal a brainrot Script, featuring infinite resources and auto-collect. Download now to dominate every match with ease and confidence,
 
 
 
